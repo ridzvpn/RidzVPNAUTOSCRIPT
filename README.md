@@ -1,0 +1,2 @@
+# RidzVPNAUTOSCRIPT
+Hello😊
